@@ -11,7 +11,7 @@
 
 ### Modo de preparo
 
-1. Em uma panela a fogo médio [...]
+1. Em uma panela a fogo médio prepare [...]
 
 2. Assim que o frango estiver bem cozido [...]
 
